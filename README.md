@@ -5,5 +5,5 @@ Top five Hip Hop/ R&B Artist
 2. Drake
 3. Childish Gambino
 4. Summer Walker
-5. Travis Scott
+5. Dom Kennedy :(
 
